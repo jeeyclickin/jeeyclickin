@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on -
 - 📫 How to reach me message on Instagram 
 - 😄 Pronouns: jeklin skibidi 
-- ⚡ Fun fact: There's nothing fun about me, I'm just a man who was often wasted by my ex
+- ⚡ Fun fact: there's nothing special about me go away btchs
 
 <!---
 jeeyclickin/jeeyclickin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
